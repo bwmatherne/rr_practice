@@ -4,7 +4,7 @@
 
 ### Top 5 Songs
 
-1. *Silly Love Songs* , Paul McCartney & Wings
+1. *Silly Love Songs*, Paul McCartney & Wings
 
 2. *Don't Go Breaking My Heart*, Elton John & Kiki Dee
 
